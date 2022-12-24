@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @santushnath
+- 👋 Hi, I’m Santush Deb Nath @santushnath
 - 👀 I’m interested in remote work 
 - 🌱 I’m always try to learn new tecnologies
 - 💞️ I’m looking to collaborate on some interesting project
